@@ -1,0 +1,1 @@
+halo ini tugas pertemuan satu mini class WRI
